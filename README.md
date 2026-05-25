@@ -1,2 +1,1 @@
-# magsterz-loader
-this is a loader for magsterz
+THE CREATORS ARE NOT RESPONSIBLE FOR BANS OR DAMAGES-=-=-=-=-
